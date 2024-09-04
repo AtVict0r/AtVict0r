@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 ## About Me
 
-👋 Hello! I'm Oluwasegun Atolagbe, and I'm on an exciting journey to become a technopath, navigating through the ever-evolving landscape of technology and human interaction. Here's a glimpse into my unique pathway:
+👋 Hello! My name is Victor, and I'm on an exciting journey to become a technopath, navigating through the ever-evolving landscape of technology and human interaction. Here's a glimpse into my unique pathway:
 
 🧑‍🏫 **Teacher:** My quest began with a fascination for understanding human learning processes. As an aspiring technopath, I believe that knowledge is a powerful tool for positive change.
 
